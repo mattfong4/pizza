@@ -1,0 +1,3 @@
+Use a balloon whisk to whisk together the flour, salt and yeast in a large bowl. Make a well in the centre. Add the water and olive oil. Use a wooden spoon to stir until combined (dough will be sticky). Cover the bowl and set aside for 12-24 hours or until doubled in size.
+Preheat oven to 250C/230C fan forced. Lightly grease two 30cm round baking trays. Divide dough between prepared trays. Set aside for 15 minutes to rest. Use your fingertips to gently push and stretch the pizza dough to cover each tray.
+Spread the pizza dough with pasta sauce or passata. Top with mozzarella and pepperoni. Bake for 15-20 minutes or until golden and crisp. Sprinkle with oregano or basil to serve.
